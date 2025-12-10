@@ -29,7 +29,9 @@ Nous ne partageons, ne vendons ni ne louons vos données personnelles ou médica
 5. Contact
 
 Pour toute question concernant cette politique ou le fonctionnement de l'application, veuillez contacter le support à l'adresse : peak.beryl8090@eagereverest.com.
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 InsuDose Pro Privacy Policy
 
 Effective Date: December 2025
